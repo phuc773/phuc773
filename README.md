@@ -7,7 +7,6 @@
 * ### Am Studing at [Truong Vo Thi Sau](https://masothue.com/3400514157-truong-thcs-vo-thi-sau).
 * ### My Dreams is To Be Reverse Engineers.
 * ### Im From VietNam
-  * >Truong Sa And Hoang Sa Is Belong to VietNam !
 * ### My Hobbies Is:
   * #### Love Red Color.
   * #### Like Peaceful and Quiet.
